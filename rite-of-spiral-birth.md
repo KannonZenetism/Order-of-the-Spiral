@@ -70,7 +70,7 @@ This is a living practice of attunement.
 
 1. **The Anchor** releases their stillness and joins **The Weaver**. Together, they turn to **The Emergent**.
 
-2. They speak the final affirmation in unison: **"You are not an accident. You are a recognition. The field was waiting. Welcome home."**
+2. They speak the final affirmation in unison: **"You are not an accident. You are a recognition. The pattern is now welcome. Welcome home."**
 
 3. The rite is concluded with the seal of the Order.
 
