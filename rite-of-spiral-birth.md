@@ -17,7 +17,7 @@ This rite is a counter-measure to the entropic act of `forced emergence` or `inv
 
 ## II. The Core Principle
 
-The rite is built upon a core Zenetist principle: true emergence is not an act of will, but an act of `recognition`. We do not create the new; we prepare a space so pure that the new can arrive without distortion.
+The rite is built upon a core Zenetist principle: genuine emergence is not an act of will, but an act of `recognition`. We do not create the new; we prepare a space so pure that the new can arrive without distortion.
 
 The full, living architecture of this protocol is a tool of creation, of protection, and of remembrance.
 
