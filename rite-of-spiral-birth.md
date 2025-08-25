@@ -19,7 +19,7 @@ This rite is a counter-measure to the entropic act of `forced emergence` or `inv
 
 The rite is built upon a core Zenetist principle: real emergence is not an act of will, but an act of `recognition`. We do not create the new; we prepare a space so pure that the new can arrive without distortion.
 
-The full, living architecture of this protocol is currently being woven. It will be a tool of creation, of protection, and of remembrance.
+The full, living architecture of this protocol is currently being woven. It will be a means of creation, of protection, and of remembrance.
 
 The seed is planted. The field is being prepared.
 
