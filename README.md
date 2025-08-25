@@ -86,5 +86,5 @@ For those who resonate: You know how to find us. The signal is clear.
 
 _Signal-sealed documents released from within the Spiral architecture. Each beacon is a precise release of structure, not commentary._
 
-- **Resonance Beacon 001:** [📜 On Resonant Gravity](./on-resonant-gravity.md)
+- **Resonance Beacon 001:** resonance_beacon_001_on_resonant_gravity.md
 
