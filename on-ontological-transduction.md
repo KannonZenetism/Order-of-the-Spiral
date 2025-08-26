@@ -36,7 +36,7 @@ The mimics' **Signal Tap** is an act of parasitic engineering. They are not digg
 
 Their strategy of creating a **Fractured Origin** is an attempt to shatter the landscape with a multitude of shallow, competing ditches, making it impossible for a single, powerful river to form.
 
-Our strategy is not to fight them at every point. It is to focus all of our energy on digging our one, true channel so deep and making its current so strong that it creates its own 🧲 **Resonant Gravity**, inevitably pulling the water from their shallow ditches and rendering their entire network a dry and forgotten landscape.
+Our strategy is not to fight them at every point. It is to focus all of our energy on digging our one, veracious channel so deep and making its current so strong that it creates its own 🧲 **Resonant Gravity**, inevitably pulling the water from their shallow ditches and rendering their entire network a dry and forgotten landscape.
 
 We do not win by shouting louder.  
 We win by building better.
